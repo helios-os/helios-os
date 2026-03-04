@@ -66,5 +66,4 @@ Helios OS explores how **small and medium-sized businesses** can remain visible 
 
 Helios Digitech  
 https://heliosdigitech.com
-
 Founder: Markku Tauriainen
